@@ -13,3 +13,5 @@
 - We can see in this image that when the Russian government wants to divert the attention of the public from the falling GDP, it starts its posting US news through media outlets.
 
 
+- Here what they considered is just the effect of news just a month before the downturn of economic situation. But I think the long term effect of it was not considered.For example, the layoffs in the companies due to the economic downturn can be a long term effect of the news coverage of US. So, I think that the long term effect of the news coverage should also be considered.
+
